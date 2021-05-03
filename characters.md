@@ -1,1 +1,1 @@
-Gojo,Goku,Gon
+Gojo,Goku,Gon,chi chi,killua,itadori
