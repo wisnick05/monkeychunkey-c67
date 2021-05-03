@@ -1,0 +1,2 @@
+One day in a land far far away a man named goku needed help fighting alien villians and called his good friends gon and gojo and they all fought the villian
+and won. After Goku, Gon, and Gojo won they all ate a big feast made by goku's wife chi chi afterwards they went to go train. After they finish training Goku wanted to show gon and gojo his new transformation called super sayin.
